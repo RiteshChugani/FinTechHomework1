@@ -160,7 +160,7 @@ Basis these trends I have summarised my recommendations for **Metaverse Group** 
 ### **a) Diversification of Business Model**
 
 We are just scratching the surface of the potential of Metaverse. There are going to be thousands of new business models that get created through the metaverse. I recommend that **Metaverse Group** diversify into creating and selling avatars and games thereby targeting Gen Z. Gen Z isn’t gobbling up large amounts of online real estate—yet. Most members don’t have the tens of thousands of dollars required to do so. But experts predict they will turn to these metaverses both as places to hang out, and eventually as places to invest. That’s why the real estate could become valuable for companies that are marketing to them.
-![](Metaverse6.jpeg)
+![](metaverse6.jpg)
 
 ###  **b) Leverage synergy with Tokens.com**
 
